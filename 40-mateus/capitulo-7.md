@@ -53,7 +53,7 @@
    - Aqui vão alguns exemplos de como você poderá ser resposta da oração dos outros: seja hospitaleiro com os recém-chegados em sua igreja ou trabalho, doe suas roupas excedentes ou aquelas que você já não usa há muito tempo para pessoas que precisam, não tenha pressa de terminar uma conversa com uma pessoa idosa ou com alguém que te abordou para desabafar.
   
 # Versículo 13 ao 14, sobre a porta estreita e a porta larga
-- Estamos chegando ao final do sermão da montanha e aqui Jesus vai fazendo um início de fechamento do seu sermão.
+- Estamos chegando ao final do sermão da montanha e aqui Jesus vai iniciando o fechamento do seu sermão.
 - Até o momento, Jesus falou sobre os seguintes tópicos:
     - Bem-aventuranças;
     - Sobre sermos o sal e luz do mundo;
@@ -61,21 +61,21 @@
     - Sobre o homicídio, adultério, divórcio, juramentos, vingança e amor aos inimigos;
     - Sobre ajuda aos necessitados, oração, jejum, tesouros no céu e preocupações nesta vida;
     - Sobre julgamento ao próximo e por fim, sobre as portas estreitas e a porta larga.
-- Observe que, como fazemos o nosso estudo semanalmente, podemos perder a noção de continuidade do texto bíblico. Tenha em mente, então, que este texto foi ministrado todo a uma aos seus ouvintes.
-- Desta maneira, faz completo sentido Jesus terminar resumindo desta forma. Estes dois versículos sobre as portas estreitas e a porta larga são um resumo de todo o sermão da montanha.
+- Observe que, como fazemos o nosso estudo semanalmente, podemos talvez perder a noção de continuidade do texto bíblico. Tenha em mente, porém, que este texto foi ministrado a uma por Jesus aos seus ouvintes.
+- Desta maneira, faz completo sentido Jesus terminar resumindo desta forma. Estes dois versículos, sobre a porta estreita e a porta larga, são um resumo de todo o sermão da montanha.
 - A seguir abordaremos alguns pontos que respondem a seguinte pergunta: o que é fugir da porta larga e seguir pela porta estreira?
 1. **O pecado atingiu todas as áreas da nossa natureza**
 - Após Adão e Eva terem pecaram no Éden, todas as áreas do nosso ser foram manchadas pelo pecado: nosso corpo e nossa mente.
 - Por esta razão, há pecados que cometemos sem levantarmos um dedo. Podemos citar como exemplo o ódio. Em Mateus 5, este sentimentos é comparado ao pecado de homicídio.
 - Hoje o nosso estado natural é de pecado contra Deus. Se simplesmente deixarmos a vida acontecer dando vazão aos nossos desejos, seremos os piores dos homens, pois nosso coração sem Deus é uma fábrica de ídolos e maldades.
-- Pense em qualquer coisa que você possa ter ou construir em sua vida terrena. Se você não se esforçar em realizar manutenções periódicas, esta coisa irá ruir. Exemplo: casamento, carro, casa, seu trabalho, entre outros.
+- Pense em qualquer coisa que você possa ter ou construir em sua vida terrena. Se você não se esforçar em realizar manutenções periódicas, esta coisa irá ruir. Exemplo: casamento, amizades, carro, casa, seu trabalho, entre outros.
 - Jesus precisa nos dizer que precisamos escolher a porta estreita, porque "escolher a porta estreita" demanda esforço, enquanto "escolher a porta larga" não demanda esforço nenhum, basta dar vazão aos desejos do coração.
-- Portanto, tenha este pressuposto em mente: considerando que sua natureza foi manchada pelo pecado, qualquer pequena atitude de santificação demandará bastante esforço de sua parte.
+- Portanto, tenha este pressuposto em mente: considerando que nossa natureza foi manchada pelo pecado, qualquer pequena atitude de santificação demandará bastante esforço de nossa parte.
 - Assim como alguém que precisa perder peso ou alguém que irá competir uma maratona precisam se esforçar para treinar, o crente precisa se esforçar para exercer sua salvação. Da mesma forma que nosso corpo não quer acordar cedo para treinar, ele também não quer exercer os exercícios espirituais que nos trazem santificação.
 2. **Fuja da porta larga**
 - Antes de falarmos de ações práticas que demonstram que estamos fugindo da porta larga, precisamos entender como essas ações se encaixam no plano de fundo da nossa salvação.
-- Somos salvos pela fé no sacrifício de Cristo. Cremos que Ele pagou o preço de nossa culpa na cruz do calvário e essa fé nos justifica, pois, no dia do juízo final, o sacrifício Dele será nossa justificação, não padeceremos a culpa de nosso pecado.
-- Apesar, porém, de sermos salvos pela fé em Cristo, veremos nas próximas pregações que nossas frutos determinam de quem somos. Então, se você se diz crente, mas não se esforça para agradar a Deus fugindo da porta estreita, você não está dando frutos de um crente.
+- Somos salvos pela fé no sacrifício de Cristo. Cremos que Ele pagou o preço de nossa culpa na cruz do calvário. Essa fé nos justifica e, no dia do juízo final, o sacrifício Dele será nossa justificação, não padeceremos a culpa de nosso pecado.
+- Apesar, porém, de sermos salvos pela fé em Cristo, veremos nas próximas pregações que nossos frutos determinam de quem somos. Então, se você se diz crente, mas não se esforça para agradar a Deus fugindo da porta larga, você não está dando frutos de um crente.
 - Somos salvos pela fé e fugimos da porta estreita como uma forma de gratidão a Deus pela salvação a nós concedido gratuitamente.
 - Tendo traçado as bases de nosso entendimento, como podemos então fugir da porta larga:
     - **Não se acomode**
