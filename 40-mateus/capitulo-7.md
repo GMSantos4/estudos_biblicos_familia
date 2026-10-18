@@ -53,7 +53,6 @@
    - Aqui vão alguns exemplos de como você poderá ser resposta da oração dos outros: seja hospitaleiro com os recém-chegados em sua igreja ou trabalho, doe suas roupas excedentes ou aquelas que você já não usa há muito tempo para pessoas que precisam, não tenha pressa de terminar uma conversa com uma pessoa idosa ou com alguém que te abordou para desabafar.
   
 # Versículo 13 ao 14, sobre a porta estreita e a porta larga
-
 - Estamos chegando ao final do sermão da montanha e aqui Jesus vai fazendo um início de fechamento do seu sermão.
 - Até o momento, Jesus falou sobre os seguintes tópicos:
     - Bem-aventuranças;
@@ -63,6 +62,16 @@
     - Sobre ajuda aos necessitados, oração, jejum, tesouros no céu e preocupações nesta vida;
     - Sobre julgamento ao próximo e por fim, sobre as portas estreitas e a porta larga.
 - Observe que, como fazemos o nosso estudo semanalmente, podemos perder a noção de continuidade do texto bíblico. Tenha em mente, então, que este texto foi ministrado todo a uma aos seus ouvintes.
-- Desta maneira, faz completo sentido Jesus terminar resumindo desta forma.
-1. 
-
+- Desta maneira, faz completo sentido Jesus terminar resumindo desta forma. Estes dois versículos sobre as portas estreitas e a porta larga são um resumo de todo o sermão da montanha.
+- A seguir abordaremos alguns alguns pontos sobre estes dois versículos
+1. **O pecado atingiu todas as áreas da nossa natureza**
+- Após Adão e Eva terem pecaram no Éden, todas as áreas do nosso ser foram manchadas pelo pecado: nosso corpo e nossa mente.
+- Por esta razão, há pecados que cometemos sem levantarmos um dedo. Podemos citar como exemplo o ódio. Em Mateus 5, este sentimentos é comparado ao pecado de homicídio.
+- Hoje o nosso estado natural é de pecado contra Deus. Se simplesmente deixarmos a vida acontecer dando vazão aos nossos desejos, seremos os piores dos homens, pois nosso coração sem Deus é uma fábrica de ídolos e maldades.
+- Pense em qualquer coisa que você possa ter ou construir em sua vida terrena. Se você não se esforçar em realizar manutenções periódicas, esta coisa irá ruir. Exemplo: casamento, carro, casa, seu trabalho, entre outros.
+- Jesus precisa nos dizer que precisamos escolher a porta estreita, porque "escolher a porta estreita" demanda esforço, enquanto "escolher a porta larga" não demanda esforço nenhum, basta dar vazão aos desejos do coração.
+- Portanto, tenha este pressuposto em mente: considerando que sua natureza foi manchada pelo pecado, qualquer pequena atitude de santificação demandará bastante esforço de sua parte.
+- Assim como alguém que precisa perder peso ou alguém que irá competir uma maratona precisam se esforçar para treinar, o crente precisa se esforçar para exercer sua salvação. Da mesma forma que nosso corpo não quer acordar cedo para treinar, ele também não quer exercer os exercícios espirituais que nos trazem santificação.
+2. **Fuja da porta larga**
+- asas
+3. **Escolha a porta estreita**
