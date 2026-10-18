@@ -51,3 +51,18 @@
    - Jesus nos ensina que agir desta forma é fazer o que foi determinado na Lei Mosaica e nos Profetas.
    - O sinal da verdadeira humildade não é a autodepreciação, autocomiseração ou falsa modéstia. O sinal da verdadeira humildade é a anulação pessoal em favor dos outros. Enquanto o falso humilde está sempre ressaltando sua "humildade" e "boas obras", o verdadeiro humilde simplesmente não fala de si, ele se preocupa com o outro, o foco do verdadeiro humilde é o próximo, da mesma forma que Cristo se humilhou e se entregou para pagar o preço da nossa culpa na cruz.
    - Aqui vão alguns exemplos de como você poderá ser resposta da oração dos outros: seja hospitaleiro com os recém-chegados em sua igreja ou trabalho, doe suas roupas excedentes ou aquelas que você já não usa há muito tempo para pessoas que precisam, não tenha pressa de terminar uma conversa com uma pessoa idosa ou com alguém que te abordou para desabafar.
+  
+# Versículo 13 ao 14, sobre a porta estreita e a porta larga
+
+- Estamos chegando ao final do sermão da montanha e aqui Jesus vai fazendo um início de fechamento do seu sermão.
+- Até o momento, Jesus falou sobre os seguintes tópicos:
+    - Bem-aventuranças;
+    - Sobre sermos o sal e luz do mundo;
+    - Sobre o cumprimento da lei;
+    - Sobre o homicídio, adultério, divórcio, juramentos, vingança e amor aos inimigos;
+    - Sobre ajuda aos necessitados, oração, jejum, tesouros no céu e preocupações nesta vida;
+    - Sobre julgamento ao próximo e por fim, sobre as portas estreitas e a porta larga.
+- Observe que, como fazemos o nosso estudo semanalmente, podemos perder a noção de continuidade do texto bíblico. Tenha em mente, então, que este texto foi ministrado todo a uma aos seus ouvintes.
+- Desta maneira, faz completo sentido Jesus terminar resumindo desta forma.
+1. 
+
