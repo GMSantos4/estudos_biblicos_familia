@@ -102,3 +102,4 @@
 - **Frequente a igreja regularmente**
 - **Ajude a quem precisa**
 - **Jejue**
+- A leitura e prática dos temas abordados no sermão da montanha é o caminho para se seguir pela porta estreita.
