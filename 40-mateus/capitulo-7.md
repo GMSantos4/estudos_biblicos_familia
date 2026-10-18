@@ -63,7 +63,7 @@
     - Sobre julgamento ao próximo e por fim, sobre as portas estreitas e a porta larga.
 - Observe que, como fazemos o nosso estudo semanalmente, podemos perder a noção de continuidade do texto bíblico. Tenha em mente, então, que este texto foi ministrado todo a uma aos seus ouvintes.
 - Desta maneira, faz completo sentido Jesus terminar resumindo desta forma. Estes dois versículos sobre as portas estreitas e a porta larga são um resumo de todo o sermão da montanha.
-- A seguir abordaremos alguns alguns pontos sobre estes dois versículos
+- A seguir abordaremos alguns pontos que respondem a seguinte pergunta: o que é fugir da porta larga e seguir pela porta estreira?
 1. **O pecado atingiu todas as áreas da nossa natureza**
 - Após Adão e Eva terem pecaram no Éden, todas as áreas do nosso ser foram manchadas pelo pecado: nosso corpo e nossa mente.
 - Por esta razão, há pecados que cometemos sem levantarmos um dedo. Podemos citar como exemplo o ódio. Em Mateus 5, este sentimentos é comparado ao pecado de homicídio.
@@ -73,5 +73,32 @@
 - Portanto, tenha este pressuposto em mente: considerando que sua natureza foi manchada pelo pecado, qualquer pequena atitude de santificação demandará bastante esforço de sua parte.
 - Assim como alguém que precisa perder peso ou alguém que irá competir uma maratona precisam se esforçar para treinar, o crente precisa se esforçar para exercer sua salvação. Da mesma forma que nosso corpo não quer acordar cedo para treinar, ele também não quer exercer os exercícios espirituais que nos trazem santificação.
 2. **Fuja da porta larga**
-- asas
+- Antes de falarmos de ações práticas que demonstram que estamos fugindo da porta larga, precisamos entender como essas ações se encaixam no plano de fundo da nossa salvação.
+- Somos salvos pela fé no sacrifício de Cristo. Cremos que Ele pagou o preço de nossa culpa na cruz do calvário e essa fé nos justifica, pois, no dia do juízo final, o sacrifício Dele será nossa justificação, não padeceremos a culpa de nosso pecado.
+- Apesar, porém, de sermos salvos pela fé em Cristo, veremos nas próximas pregações que nossas frutos determinam de quem somos. Então, se você se diz crente, mas não se esforça para agradar a Deus fugindo da porta estreita, você não está dando frutos de um crente.
+- Somos salvos pela fé e fugimos da porta estreita como uma forma de gratidão a Deus pela salvação a nós concedido gratuitamente.
+- Tendo traçado as bases de nosso entendimento, como podemos então fugir da porta larga:
+    - **Não se acomode**
+        - Cristãos que amam a Jesus devem sempre pedir a Deus que os revelem seus pecados para que possam se arrepender.
+        - Ore a Deus e peça que Ele te revele seus pecados para que você se arrependa.
+    - **Fuja de situações que te levam a pecar**
+        - A porta larga é onde damos vazão aos nossos sentimentos pecaminosos que precisam ser reprimidos por amor a Deus, portanto, fuja de situações que te levem a pecar.
+        - Se você fica irritada no trânsito, talvez precise comprar uma bicicleta.
+        - Se seu celular te faz pecar procastinando seu tempo, talvez precise deixá-lo trancado em uma gaveta.
+    - **Fuja de companhias que te fazem pecar**
+        - Em 1 Coríntios 15:33, Paulo diz que as más conversações corrompem os bons costumes.
+        - É impossível trabalhar apenas com pessoas que professam a mesma fé que você. De certo modo, isso é até bom, pois você poderá anunciar o evangelho a alguém que não crê.
+        - Tenha cuidado, porém, que algumas pessoas não crentes podem te levar a pecar. Neste caso, você deve fugir de situações ou dessas companhias por amor a Deus.
 3. **Escolha a porta estreita**
+- Tendo fugido da porta larga, você deve se esforçar para perseguir a porta estreita. Esta atitude demandará esforço, pois, buscar a santificação é algo antinatural para o homem corrompido pelo pecado.
+- **Leia a bíblia e faça oração**
+    - O arroz com feijão da porta estreita é a leitura bíblica e oração diárias.
+    - Recentemente, notei que, sem contar com as orações antes das refeições, que normalmente são orações automáticas, não tinha um momento de oração no meu dia.
+    - Justamente pelo fato de a leitura bíblica e a oração serem o básico da vida cristã, muitas vezes não damos tempo para isso em nossa rotina diária.
+- **Encha sua mente com coisas do céu**
+    - Estamos na era do entretenimento fácil, conseguimos assistir o que quisermos com apenas um clique.
+    - Fuja de séries ou filmes que te levem a pecar.
+    - Mesmo que esteja assistindo apenas séries ou filmes saudáveis, não deixe que apenas o entretenimento encher sua mente.
+- **Frequente a igreja regularmente**
+- **Ajude a quem precisa**
+- **Jejue**
