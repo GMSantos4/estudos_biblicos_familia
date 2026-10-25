@@ -124,4 +124,9 @@
 - A conclusão que tiramos disso é que nossa intimidade com Deus não está baseada em o que achamos que somos, mas naquilo que a Bíblia diz que somos.
 - E a Bíblia diz que pelos frutos se conhece uma árvore.
 - Da mesmo forma, nosso pertencer ou não a Deus não está baseado em quantas almas você "salvou", em quantos demônios você "expulsou", mas sim naquilo que a Bíblia diz que somos.
-- 
+- E a Bíblia diz que pelos frutos se conhece uma árvore.
+- Peça perdão ao Senhor pelos seus pecados, peça a Ele que te desmascare. É melhor ser desmascarado em vida que ouvir que não é conhecido do Senhor no último dia.
+- Busque a santidade não para ser salvo, mas porque para as árvores boas não é dado escolha, elas devem produzir bons frutos.
+3. **(v19) O lobo disfarçado de ovelha queimará no fogo do inferno de Deus**
+- O versículo 19 termina dizendo que o destino dos lobos é o fogo da condenação.
+- Peça perdão a Deus e dê bons frutos por amor a Ele.
