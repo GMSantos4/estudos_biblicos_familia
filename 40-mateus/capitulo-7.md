@@ -103,3 +103,25 @@
 - **Ajude a quem precisa**
 - **Jejue**
 - A leitura e prática dos temas abordados no sermão da montanha é o caminho para se seguir pela porta estreita.
+
+# Versículo 15 ao 23, sobre a árvore e seus frutos
+- Estamos chegando ao final do sermão da montanha. E ao final de todos estes conselhos práticos de como seguir a Jesus, de como imitá-lo, Jesus nos diz algo que parece até um pouco profético.
+- Os verdadeiros seguidores de Cristo dão bons frutos, ou seja, tomam as atitudes citadas em cada um das situações do sermão da montanha.
+- Jesus está nos dando uma forma de discernir se alguém de fato é um cristão ou se está apenas tentando enganar os outros.
+- Hoje responderemos à seguinte pergunta, quais são as características da falsa ovelha, ou melhor, do lobo disfarçado de ovelha?
+1. **(v15-18) O lobo disfarçado de ovelha toma atitudes da vida cotidiana diferentes do que discursa.**
+- Uma das características do lobo citada por Jesus neste trecho é que ele não dá bons frutos.
+- Jesus nos ensina que a árvore má não pode dar bons frutos, assim como a árvore ruim não pode dar bons frutos.
+- Diante disso, precisamos prestar atenção nos frutos das pessoas para ver se elas vivem da forma que discursam.
+- De forma mais profunda, devemos olha para nossa própria vida e nos perguntarmos se nosso viver está de acordo com a Palavra de Deus.
+- São os nossos frutos que determinarão de quem somos. Se nossa vida é cheia de maledicência, ódio, irritação, gula, falta de amor, entre outros, isso pode significar que somos lobos disfarçados de ovelhas.
+- Se você enxerga isso no seu coração hoje, corra para Cristo pedindo perdão e busque orar, ler a Bíblia e fazer boas obras.
+2. **(v20-23) O lobo disfarçado de ovelha acha que tem intimidade com Deus e pode até mesmo fazer sinais miraculosos**
+- No antigo testamento, a repetição do nome de uma pessoa indica que o falante tem intimidade com aquele a quem chama.
+- Observe que o que Cristo quer dizer nesta passagem é que, naquele dia final, os lobos disfarçados de ovelha questionarão a Deus como se tivessem intimidade com Deus a respeito de sua condenação.
+- Esses lobos questionarão como se tivessem intimidade com Deus e, naquele mesmo momento, o próprio Senhor revelará que nunca os conheceu.
+- Observe que os lobos usaram como justificativa de seu questionamento, os sinais miraculosos que fizeram em nome do Senhor. Mesmo assim, o Senhor declarará que nunca os conheceu.
+- A conclusão que tiramos disso é que nossa intimidade com Deus não está baseada em o que achamos que somos, mas naquilo que a Bíblia diz que somos.
+- E a Bíblia diz que pelos frutos se conhece uma árvore.
+- Da mesmo forma, nosso pertencer ou não a Deus não está baseado em quantas almas você "salvou", em quantos demônios você "expulsou", mas sim naquilo que a Bíblia diz que somos.
+- 
