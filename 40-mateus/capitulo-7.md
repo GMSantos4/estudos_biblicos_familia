@@ -166,3 +166,15 @@
 - Observe que ao final da pregação do sermão da montanha, é relatado que as pessoas ficaram maravilhadas com Jesus porque ele não ensinava como os mestres da Lei, mas como alguém que tinha autoridade.
 - Por que será que as pessoas ficaram espantadas? O que de diferente tinha Jesus?
 - Apesar de a Bíblia não falar isso explicitamente, acredito que o que deixou as pessoas espantadas era porque elas viam que Jesus era cumpridor das palavras que Ele ordenava.
+- Enquanto os mestres da Lei eram conhecidos por sua hipocrisia, ou seja, eles ordenavam coisas que nem eles mesmos cumpriam, Jesus ordenava aquilo que Ele mesmo cumpria.
+- A pergunta que fica é, será que você teria essa mesma autoridade? Será que você seria reconhecido como alguém que cumpre o que ordena ou como um hipócrita que fala de uma forma e vive de outra?
+- Jesus é nosso salvador, e veio para nos deixar exemplo. Essa autoridade que Ele tem, nós devemos buscar também. E alcançamos esta autoridade por meio da obediência fiel aos seus mandamento.
+- A verdadeira legitimidade vem por meio da obediência aos mandamentos de Deus somada à mesma humildade de Cristo.
+- Por fim, leiamos **Tiago 3:13-18**:
+      - Dois tipos de sabedoria:
+      ¹³ Quem é sábio e tem entendimento entre vocês? Que o demonstre pelo seu bom procedimento e por meio de obras praticadas com a humildade que provém da sabedoria.
+      ¹⁴ Contudo, se vocês abrigam no coração inveja amarga e ambição egoísta, não se gloriem disso nem neguem a verdade.
+      ¹⁵ Esse tipo de "sabedoria" não vem do alto, mas é terrena, humana e demoníaca.
+      ¹⁶ Pois, onde há inveja e ambição egoísta, há confusão e toda espécie de males.
+      ¹⁷ No entanto, a sabedoria que vem do alto é, antes de tudo, pura; depois, pacífica, amável, compreensiva, cheia de misericórdia e de bons frutos, imparcial e sincera.
+      ¹⁸ O fruto da justiça é semeado em paz pelos pacificadores.
