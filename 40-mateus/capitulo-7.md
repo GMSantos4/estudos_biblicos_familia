@@ -139,5 +139,19 @@
 - Não somos salvos por obras, somos salvos pela fé no sacrifício de Cristo. Fazemos boas obras como gratidão a Deus pela salvação recebida de graça.
 - O fato de termos sido salvos de graça deve nos impulsionar a nos dedicarmos mais às boas obras. Como um homem a quem é perdoada uma grande dívida é grato ao seu senhor e faz de tudo para o agradar, nós devemos nos esforçarmos nas boas obras devido ao grande perdão que recebemos.
 - Hoje, não iremos responder a nenhuma a nenhuma pergunta em especial. Hoje observaremos as características do encerramento do sermão da montanha.
-- 
+1. Prudência
+- Nosso imaginário define prudência como aquela característica que nos faz pensar antes de agir, analisar antes de tomar uma decisão específica.
+- De certa forma, esta definição não está errada quando comparada a definição de prudência dada por Jesus.
+- imagine um homem que está construindo sua casa, o local onde ele guardará as pessoas e as coisas que ele possui de mais preciosas.
+- Este homem, antes de construir, analisa o terreno, pois ele precisa ter a certeza de que a sua casa não irá desabar diante da primeira tempestade.
+- A um homem como este, chamaríamos de responsável, cuidadoso e amoroso. Jesus simplesmente o chama de prudente.
+- Todos queremos ser uma pessoa como essa, prudente. Jesus diz que aquele que ouve as suas palavras e a pratica é como este homem admirável.
+- Observe que, o que caracteriza o homem prudente segundo Jesus são duas ações: OUVIR e PRATICAR.
+- Se nossa fé em Cristo não ultrapassar a teoria, ela é uma fé morta. O homem prudente segundo Cristo, será conhecido pelo cumprimento da Palavra de Jesus no sermão da montanha.
+- Se queremos seguir a Cristo, não basta o conhecermos como se conhece uma matéria da faculdade ou escola, precisamos andarmos como Ele andou.
+- Na prática, isto significa que devemos ler o sermão da montanha, a Bíblia como um todo, e a partir desta leitura, precisamos modificar nosso comportamento diário.
+- Ore a Deus pedindo ajuda, pois essa mudança de atitude não é algo natural, é operada pelo Espírito Santo.
+2. Insensatez
+- De forma contrária, definimos insensatez em nosso ima
+3. Legitimidade
 
