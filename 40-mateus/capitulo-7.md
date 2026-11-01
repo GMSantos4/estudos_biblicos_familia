@@ -139,7 +139,7 @@
 - Não somos salvos por obras, somos salvos pela fé no sacrifício de Cristo. Fazemos boas obras como gratidão a Deus pela salvação recebida de graça.
 - O fato de termos sido salvos de graça deve nos impulsionar a nos dedicarmos mais às boas obras. Como um homem a quem é perdoada uma grande dívida é grato ao seu senhor e faz de tudo para o agradar, nós devemos nos esforçarmos nas boas obras devido ao grande perdão que recebemos.
 - Hoje, não iremos responder a nenhuma a nenhuma pergunta em especial. Hoje observaremos as características do encerramento do sermão da montanha.
-1. Prudência
+1. **(v24-25) Prudência**
 - Nosso imaginário define prudência como aquela característica que nos faz pensar antes de agir, analisar antes de tomar uma decisão específica.
 - De certa forma, esta definição não está errada quando comparada a definição de prudência dada por Jesus.
 - imagine um homem que está construindo sua casa, o local onde ele guardará as pessoas e as coisas que ele possui de mais preciosas.
@@ -151,7 +151,18 @@
 - Se queremos seguir a Cristo, não basta o conhecermos como se conhece uma matéria da faculdade ou escola, precisamos andarmos como Ele andou.
 - Na prática, isto significa que devemos ler o sermão da montanha, a Bíblia como um todo, e a partir desta leitura, precisamos modificar nosso comportamento diário.
 - Ore a Deus pedindo ajuda, pois essa mudança de atitude não é algo natural, é operada pelo Espírito Santo.
-2. Insensatez
-- De forma contrária, definimos insensatez em nosso ima
-3. Legitimidade
-
+2. **(v26-27) Insensatez**
+- De forma contrária, definimos insensatez em nosso imaginário como alguém que não pensa antes de agir, alguém que não mede as consequências de seus atos.
+- Imagine se déssemos vazão a todo sentimento mau que surge em nosso coração. Quantas amizades já não teríamos quebrado? Quantos relacionamento já não teríamos desfeito?
+- O senhor Jesus define o homem insensato como aquele que OUVE a sua palavra, mas a NÃO PRATICA. Ou seja, enquanto sensatez é definida como OUVIR e PRATICAR, insensatez é definida como OUVIR e NÃO PRATICAR.
+- Observe que em ambos os casos, na sensatez e na insensatez, é cumprida a primeira parte, OUVIR as palavras, mas no primeiro, há AÇÃO e no segundo, NÃO HÁ AÇÃO decorrente daquela palavra.
+- A palavra de Deus, quanto cai nos ouvidos do insensato, não gera mudança de atitude. Enquanto isso, quando o sensato ouve a palavra de Deus, ele busca mudar sua atitude para que suas atitudes estejam mais de acordo com a palavra que ouviu.
+- O insensato é o crente 007, ninguém ao seu redor sabe que ele é crente, pois suas ações não demonstram aquilo que ele acredita.
+- Devemos orar ao Senhor para que a Palavra de Deus tenha efeito em nossos corações.
+- Devemos orar ao Senhor para que não sejamos como o homem insensato.
+- Que Deus tenha misericórdia de nós e nos ajude a reconhecermos nossos erros e corrigirmos nossas falhas.
+- Que sejamos mais parecidos com Ele.
+3. **(v28-29) Legitimidade**
+- Observe que ao final da pregação do sermão da montanha, é relatado que as pessoas ficaram maravilhadas com Jesus porque ele não ensinava como os mestres da Lei, mas como alguém que tinha autoridade.
+- Por que será que as pessoas ficaram espantadas? O que de diferente tinha Jesus?
+- Apesar de a Bíblia não falar isso explicitamente, acredito que o que deixou as pessoas espantadas era porque elas viam que Jesus era cumpridor das palavras que Ele ordenava.
