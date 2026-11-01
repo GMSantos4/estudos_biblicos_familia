@@ -130,3 +130,14 @@
 3. **(v19) O lobo disfarçado de ovelha queimará no fogo do inferno de Deus**
 - O versículo 19 termina dizendo que o destino dos lobos é o fogo da condenação.
 - Peça perdão a Deus e dê bons frutos por amor a Ele.
+
+# Versículo 24 ao 29, sobre o prudente e o insensato
+- Chegamos à última seção do sermão da montanha. Aqui Jesus faz uma observação sobre a atitude das pessoas diante de suas palavras.
+- É muito verdade que o cumprimento dos mandamento de Jesus é algo muito difícil para pecadores, é algo que precisamos nos esforçar, pois não é de nossa natureza pecaminosa.
+- É somente pelo poder de Cristo que conseguimos obedecê-lo. Como alguém falou em algum momento: todo bem que eu fizer, é o poder de Deus agindo por meio de mim, enquanto que, todo mal que eu fizer, sou eu mesmo agundo.
+- A insensatez é de nossa natureza, devemos porém nos esforçarmos para seguirmos a prudência. Ressalto que devemos seguir a prudência como forma de gratidão a Cristo pelo salvação recebida, não como uma forma de receber salvação.
+- Não somos salvos por obras, somos salvos pela fé no sacrifício de Cristo. Fazemos boas obras como gratidão a Deus pela salvação recebida de graça.
+- O fato de termos sido salvos de graça deve nos impulsionar a nos dedicarmos mais às boas obras. Como um homem a quem é perdoada uma grande dívida é grato ao seu senhor e faz de tudo para o agradar, nós devemos nos esforçarmos nas boas obras devido ao grande perdão que recebemos.
+- Hoje, não iremos responder a nenhuma a nenhuma pergunta em especial. Hoje observaremos as características do encerramento do sermão da montanha.
+- 
+
