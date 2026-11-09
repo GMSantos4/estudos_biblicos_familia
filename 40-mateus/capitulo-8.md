@@ -25,7 +25,8 @@
 - Observe tamanha a fé do centurião. Baseado em sua própria experiência diária, ele deduziu que o Senhor Jesus tinha autoridade para curar seu servo com apenas uma palavra.
 - O centurião era um militar do império romano. Este homem compreendia sua pecaminosidade e teve fé que o Senhor Jesus tinha poder para salvar seu servo com apenas uma palavras.
 - Devemos ter cuidado para não esquecermos que somos pecadores.
-- A presença frequente nas atividades da igreja é importantíssima, mas não deixe que isso te faça esquecer de que Cristo precisou morrer para pagar seu pecado.
+- Observe os versículos do 10 ao 12. A presença frequente nas atividades da igreja é importantíssima, mas não deixe que isso te faça esquecer de que Cristo precisou morrer para pagar seu pecado.
+- Não deixe que os títulos eclesiásticos te seguem para o que de fato importa.
 - Que nossa fé em Cristo seja tão grande que venhamos crer mesmo que nossos olhos nos estimulem a desacreditar.
 - Confiemos em Jesus para salvação.
 
