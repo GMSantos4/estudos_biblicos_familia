@@ -15,8 +15,13 @@
 - E a medida que essa pessoa vai descendo, ela vai tendo sua fé esmorecida e desanimando.
 - Ela vê o Senhor Jesus, mas agora, parece que andar ao seu lado parece um fardo bem pesado pelas "exigências" que Ele faz.
 - Essa pessoa, imersa em si mesmo, é surpreendida com um leproso fedorento e sujo que se prosta diante de Jesus e afirma: "Se quiseres, podes me curar!".
+- E para sua surpresa, Jesus simplesmente responde, "Quero. Seja purificado!".
+- Sempre que tiver alguma dúvida sobre seu papel na sua salvação, lembre dessas palavras de Jesus.
+- A sua fé é suficiente para salvação. Todas as suas obras, por mais que boas, não são suficientes para te salvar, pois seus pecados superam em muito suas boas obras.
+- Confie em Cristo e serás salvo.
+- O sacrifício de Cristo pagou a Deus o preço do seu pecado, e você se conecta a este sacrifício por meio da fé apenas.
 
 2. A fé é cega
-- asas
+- 
 
 3. A fé é o cumprimento da Palavra de Deus
