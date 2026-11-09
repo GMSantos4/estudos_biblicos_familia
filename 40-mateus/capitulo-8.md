@@ -35,5 +35,5 @@
 - E ao final de todas essas atividades o apóstolo no diz que Jesus cumpriu o que foi dito pelo profeta Isaías, Ele levou sobre si as nossas dores.
 - A fé em Cristo é o que nos faz justificados diante do tribunal de Deus.
 - Durante toda sua vida terrena, Jesus viveu de forma justa e, ao final, padeceu pela culpa de nossos pecados para que recebêssemos o preço de sua vida santa.
-- Todos os seus pecados foram levados por Cristo naquela penosa cruz. Ele carregou todas as nossas mazelas para que recebêssemos vida.
+- Todos os nossos pecados foram levados por Cristo naquela penosa cruz. Ele carregou todas as nossas mazelas para que recebêssemos vida.
 - Você precisa crer em Jesus que perdoou todos os seus pecados e fazer boas obras como gratidão ao que você recebeu de graça.
