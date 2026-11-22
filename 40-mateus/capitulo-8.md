@@ -40,19 +40,21 @@
 
 # Versículo 18 ao 34, o custo da caminhada com Jesus
 
-- Na última pregação, falamos das características da fé, ela é suficiente para salvação, ela é cega, ou seja, crer no poder de Deus independente das circunstâncias e ela é o que nos justifica.
+- Na última pregação, falamos das características da fé; ela é suficiente para salvação, ela é cega, ou seja, ela crê no poder de Deus independentemente das circunstâncias, e ela é o que nos justifica.
 - Hoje veremos os custos da caminhada com Jesus.
-- Algo que precisamos afirmar desde o princípio é que nossa vida não termina quando nosso corpo físico morrer, como justificados em Cristo, cremos que moraremos em uma terra governada pelo Cordeiro.
-- É importante que sempre tenhamos nossa mente voltada para isso enquanto passamos pelas batalhas terrenas.
+- Algo que precisamos afirmar desde o princípio é que nossa vida não termina quando nosso corpo físico morre.
+- Como justificados em Cristo, cremos que moraremos em uma terra governada pelo Cordeiro.
+- É importante que sempre mantenhamos nossa mente voltada para este fato enquanto passamos pelas batalhas terrenas.
 - Vamos analisar, então, os custos da caminhada com Jesus.
 
 1. **(v18-19) Abrir mão da Estabilidade**
-- O senhor Jesus conhece nosso coração e mesmo que nossas palavras digam algo, ele sabe qual é a verdadeira intenção do nosso coração por trás de nosso discurso.
-- Neste trecho vemos um mestre da lei, alguém que provavelmente estava acostumado com toda a hierarquia do regime de seu tempo.
+- O senhor Jesus conhece nosso coração e, mesmo que nossas palavras digam algo, ele sabe qual é a verdadeira intenção do nosso coração por de trás de nosso discurso.
+- Neste trecho vemos um mestre da lei, alguém que provavelmente estava acostumado com toda a hierarquia do regime eclesiástico de seu tempo.
 - Como um mestre da lei, ele sabia seu lugar atual e possivelmente tinha aspirações pessoais.
 - Quando este homem vê Jesus e seus ensinamentos, ele é compelido a dizer que o seguirá por onde quer que Jesus fosse.
-- Talvez ele tenha falado isso sem saber muito bem o que dizia, mas a resposta de Jesus a sua afirmação nos revela o que estava no coração daquele mestre da lei: busca por estabilidade.
-- Em Jesus, a estabilidade terrena dos cargos humanos não existe. Em Cristo de fato há estabilidade, pois ele é nossa rocha, mas não a estabilidade que o mundo promete: dinheiro fixo mensal ou um cargo público onde você não poderá ser demitido.
+- Talvez ele tenha falado isso sem saber muito bem o que dizia.
+- A resposta de Jesus a afirmação do mestre da lei nos revela o que estava no coração daquele homem: busca por estabilidade.
+- Em Jesus, a estabilidade terrena dos cargos humanos não existe. Em Cristo de fato há estabilidade, pois ele é nossa rocha, mas não a estabilidade que o mundo promete: dinheiro fixo mensal, ou um cargo público onde você não poderá ser demitido.
 - Fazemos muitos planos e almejamos alcançar muitas coisas, mas Jesus nos promete apenas que estaria conosco. E apenas isto de fato é suficiente.
 - Que nosso coração confie em Jesus a ponto de confiarmos Nele para as necessidades mais básicas de nossas vidas.
 - Que nosso coração confie em Jesus para caminharmos com Ele em meio ao vale da sombra da morte.
@@ -60,7 +62,7 @@
 2. **(v20-22) Abrir mão dos Objetivos Pessoais**
 - A caminhada com Jesus demandará que renunciemos a objetivos pessoais.
 - Não creio que a história relatada neste trecho queira dizer que o discípulo estava literalmente indo ao velório de seu pai e Jesus negou que o mesmo fosse.
-- Creio que aqui o discípulo pede a Jesus que o autorize a viver sua vida e depois seguir a Cristo.
+- Creio que o discípulo pede a Jesus que o autorize a viver sua vida e depois seguir a Cristo.
 - E diante deste contexto, Jesus ordena que ele deixe os mortos sepultarem seus próprios mortos.
 - Um exemplo que ilustra bem o que significa este custo é a vida de Martyn Lloid-Jones, o famoso pastor e escritor.
 - Com uma carreira proeminente na medicina, inclusive como assistente do médico da família real britânica, Martyn Lloid-Jones abandona esta carreira em 1927 para se tornar pastor.
@@ -69,18 +71,18 @@
 - A caminhada cristã demandará em algum grau que renunciemos aos objetivos pessoais.
 
 3. **(v23-27) Demanda Confiança durante a Tribulação**
-- Imagine o cenário, Jesus está chamando seus discípulo (não apenas os 12) para entrarem no barco.
+- Imagine o cenário, Jesus está chamando seus discípulos (não apenas os 12) para entrarem no barco.
 - O mestre da lei que queria estabilidade, deu as costas e voltou para casa.
 - O discípulo que queria resolver seus negócio terrenos e depois seguir a Cristo, também deu as costas e voltou para casa.
-- Agora estão no barco com Jesus apenas aqueles que entendem que o chamado de Cristo não oferece a estabilidade que o coração humano e pecador busca, e aqueles que entendem que o chamado de Cristo é imediato.
-- Estes discípulos entendem agora que o chamado de Jesus demanda confiança em meio a tribulação.
-- Como uma forma de nos ensinar a confiar em Jesus, ele leva aqueles homens para o meio da tempestade para que eles vejam e creiam que Jesus é poderoso para cuidar deles enquanto eles estão fazendo o chamado de Deus.
-- Que Jesus sedimente nossa fé nele e que sejamos firmes e confiantes nele.
+- Agora estão no barco com Jesus apenas aqueles que entendem que o chamado de Cristo não oferece a estabilidade que o coração humano pecador busca, e aqueles que entendem que o chamado de Cristo é imediato.
+- Estes discípulos aprendem também durante a navegação que o chamado de Jesus demanda confiança em meio a tribulação.
+- Como uma forma de nos ensinar a confiar em Jesus, ele leva aqueles homens para o meio da tempestade para que eles vejam e creiam que Jesus é poderoso para cuidar deles enquanto eles estão cumprindo o chamado de Deus.
+- Que Jesus sedimente nossa fé nele, que sejamos firmes e que tenhamos confiança nele.
 
 4. **(v28-34) Abrir mão do Reconhecimento Terreno**
 - Depois de entendermos que não teremos estabilidade, que não teremos nossos objetivos pessoais satisfeitos e que devemos confiar em Jesus enquanto fazemos sua obra, chegamos ao último custo da caminhada com Jesus.
-- Podemos ser desprezados e expulsos pelas pessoas a quem Jesus nos envia para fazermos a sua obra.
-- O gadarenos eram o povo que vivia na cidade de [Gadara](https://www.youtube.com/watch?v=f6MGqZt0row&t=148s), uma das dez cidades da [decápolis](https://www.dighippos.com/decapolis).
+- Podemos ser desprezados e expulsos pelas pessoas a quem Jesus nos envia para fazermos a sua obra: devemos abrir mão do reconhecimento terreno.
+- Os gadarenos eram o povo que vivia na cidade de [Gadara](https://www.youtube.com/watch?v=f6MGqZt0row&t=148s), uma das dez cidades da [decápolis](https://www.dighippos.com/decapolis).
 
 <p align="center">
   <img width="602" height="732" alt="image" src="https://github.com/user-attachments/assets/00ff4c27-a010-48ed-8ed3-31233f8fd9f5" />
@@ -89,7 +91,16 @@
 </p>
 
 - Estas cidades tinham influência greco-romana e não compartilhavam dos princípios alimentares dos judeus.
-- A morte da manada de porcos significava um perda financeira muito grande para o dono daquela manada.
+- A morte da manada de porcos significava um perda financeira muito grande para o dono daquela manada. Este, agora, não poderia vender a carne do animal e obter seu lucro.
 - Esta perda financeira cegou os gadarenos para os benefícios espirituais trazidos por Jesus ao libertar um homem dominado por demônios.
+- Outros donos de negócios em Gadara poderiam pensar: "O que este hebreu não poderá fazer com meus negócios? Eu o quero longe da minha cidade!"
 - Diante de um situação onde padecemos por fazer o bem, devemos lembrar do exemplo de Cristo que se entregou por nós e sofreu mesmo sem merecer.
 - Que Deus nos ajude a termos confiança nele independente da situação.
+- Neste trecho Jesus nos ensina o custo da caminhada com Ele. Devemos nos lembrar que a recompensa logo vem:
+
+  > ¹⁶ Por isso, não desanimamos. Embora exteriormente nos desgastemos, interiormente estamos sendo renovados dia após dia,
+  > ¹⁷ pois os nossos sofrimentos leves e momentâneos produzem para nós uma glória eterna que pesa mais do que todos eles.
+  > ¹⁸ Assim, fixamos os olhos não naquilo que se vê, mas no que não se vê, pois o que se vê é transitório, mas o que não se vê é eterno.
+  >
+  > — *2 Coríntios 4:16-18 | NVI*
+
