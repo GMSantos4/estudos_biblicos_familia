@@ -80,4 +80,15 @@
 4. **(v28-34) Abrir mão do Reconhecimento Terreno**
 - Depois de entendermos que não teremos estabilidade, que não teremos nossos objetivos pessoais satisfeitos e que devemos confiar em Jesus enquanto fazemos sua obra, chegamos ao último custo da caminhada com Jesus.
 - Podemos ser desprezados e expulsos pelas pessoas a quem Jesus nos envia para fazermos a sua obra.
+- O gadarenos eram o povo que vivia na cidade de [Gadara](https://www.youtube.com/watch?v=f6MGqZt0row&t=148s), uma das dez cidades da [decápolis](https://www.dighippos.com/decapolis).
+
+<p align="center">
+  <img width="602" height="732" alt="image" src="https://github.com/user-attachments/assets/00ff4c27-a010-48ed-8ed3-31233f8fd9f5" />
+  <br>
+  <em>Mapa da Região, fonte: https://www.dighippos.com/decapolis</em>
+</p>
+
+- Estas cidades tinham influência greco-romana e não compartilhavam dos princípios alimentares dos judeus.
+- A morte da manada de porcos significava um perda financeira muito grande para o dono daquela manada.
+- Esta perda financeira cegou os gadarenos para os benefícios espirituais trazidos por Jesus ao libertar um homem dominado por demônios.
 - 
