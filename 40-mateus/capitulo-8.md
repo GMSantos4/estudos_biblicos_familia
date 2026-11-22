@@ -72,3 +72,12 @@
 - Imagine o cenário, Jesus está chamando seus discípulo (não apenas os 12) para entrarem no barco.
 - O mestre da lei que queria estabilidade, deu as costas e voltou para casa.
 - O discípulo que queria resolver seus negócio terrenos e depois seguir a Cristo, também deu as costas e voltou para casa.
+- Agora estão no barco com Jesus apenas aqueles que entendem que o chamado de Cristo não oferece a estabilidade que o coração humano e pecador busca, e aqueles que entendem que o chamado de Cristo é imediato.
+- Estes discípulos entendem agora que o chamado de Jesus demanda confiança em meio a tribulação.
+- Como uma forma de nos ensinar a confiar em Jesus, ele leva aqueles homens para o meio da tempestade para que eles vejam e creiam que Jesus é poderoso para cuidar deles enquanto eles estão fazendo o chamado de Deus.
+- Que Jesus sedimente nossa fé nele e que sejamos firmes e confiantes nele.
+
+4. **(v28-34) Abrir mão do Reconhecimento Terreno**
+- Depois de entendermos que não teremos estabilidade, que não teremos nossos objetivos pessoais satisfeitos e que devemos confiar em Jesus enquanto fazemos sua obra, chegamos ao último custo da caminhada com Jesus.
+- Podemos ser desprezados e expulsos pelas pessoas a quem Jesus nos envia para fazermos a sua obra.
+- 
