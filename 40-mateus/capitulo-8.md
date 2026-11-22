@@ -91,4 +91,5 @@
 - Estas cidades tinham influência greco-romana e não compartilhavam dos princípios alimentares dos judeus.
 - A morte da manada de porcos significava um perda financeira muito grande para o dono daquela manada.
 - Esta perda financeira cegou os gadarenos para os benefícios espirituais trazidos por Jesus ao libertar um homem dominado por demônios.
-- 
+- Diante de um situação onde padecemos por fazer o bem, devemos lembrar do exemplo de Cristo que se entregou por nós e sofreu mesmo sem merecer.
+- Que Deus nos ajude a termos confiança nele independente da situação.
