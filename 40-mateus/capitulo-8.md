@@ -37,3 +37,38 @@
 - Durante toda sua vida terrena, Jesus viveu de forma justa e, ao final, padeceu pela culpa de nossos pecados para que recebêssemos o preço de sua vida santa.
 - Todos os nossos pecados foram levados por Cristo naquela penosa cruz. Ele carregou todas as nossas mazelas para que recebêssemos vida.
 - Você precisa crer em Jesus que perdoou todos os seus pecados e fazer boas obras como gratidão ao que você recebeu de graça.
+
+# Versículo 18 ao 34, o custo da caminhada com Jesus
+
+- Na última pregação, falamos das características da fé, ela é suficiente para salvação, ela é cega, ou seja, crer no poder de Deus independente das circunstâncias e ela é o que nos justifica.
+- Hoje veremos os custos da caminhada com Jesus.
+- Algo que precisamos afirmar desde o princípio é que nossa vida não termina quando nosso corpo físico morrer, como justificados em Cristo, cremos que moraremos em uma terra governada pelo Cordeiro.
+- É importante que sempre tenhamos nossa mente voltada para isso enquanto passamos pelas batalhas terrenas.
+- Vamos analisar, então, os custos da caminhada com Jesus.
+
+1. **(v18-19) Abrir mão da Estabilidade**
+- O senhor Jesus conhece nosso coração e mesmo que nossas palavras digam algo, ele sabe qual é a verdadeira intenção do nosso coração por trás de nosso discurso.
+- Neste trecho vemos um mestre da lei, alguém que provavelmente estava acostumado com toda a hierarquia do regime de seu tempo.
+- Como um mestre da lei, ele sabia seu lugar atual e possivelmente tinha aspirações pessoais.
+- Quando este homem vê Jesus e seus ensinamentos, ele é compelido a dizer que o seguirá por onde quer que Jesus fosse.
+- Talvez ele tenha falado isso sem saber muito bem o que dizia, mas a resposta de Jesus a sua afirmação nos revela o que estava no coração daquele mestre da lei: busca por estabilidade.
+- Em Jesus, a estabilidade terrena dos cargos humanos não existe. Em Cristo de fato há estabilidade, pois ele é nossa rocha, mas não a estabilidade que o mundo promete: dinheiro fixo mensal ou um cargo público onde você não poderá ser demitido.
+- Fazemos muitos planos e almejamos alcançar muitas coisas, mas Jesus nos promete apenas que estaria conosco. E apenas isto de fato é suficiente.
+- Que nosso coração confie em Jesus a ponto de confiarmos Nele para as necessidades mais básicas de nossas vidas.
+- Que nosso coração confie em Jesus para caminharmos com Ele em meio ao vale da sombra da morte.
+
+2. **(v20-22) Abrir mão dos Objetivos Pessoais**
+- A caminhada com Jesus demandará que renunciemos a objetivos pessoais.
+- Não creio que a história relatada neste trecho queira dizer que o discípulo estava literalmente indo ao velório de seu pai e Jesus negou que o mesmo fosse.
+- Creio que aqui o discípulo pede a Jesus que o autorize a viver sua vida e depois seguir a Cristo.
+- E diante deste contexto, Jesus ordena que ele deixe os mortos sepultarem seus próprios mortos.
+- Um exemplo que ilustra bem o que significa este custo é a vida de Martyn Lloid-Jones, o famoso pastor e escritor.
+- Com uma carreira proeminente na medicina, inclusive como assistente do médico da família real britânica, Martyn Lloid-Jones abandona esta carreira em 1927 para se tornar pastor.
+- O senhor Lloid-Jones foi um famoso pregador e, de certa forma, creio que se tornou mais famoso hoje em dia por ter abraçado o seu chamado pastoral.
+- Muitos outros, porém, abriram mão de carreiras confortáveis para seguir o chamado do Senhor.
+- A caminhada cristã demandará em algum grau que renunciemos aos objetivos pessoais.
+
+3. **(v23-27) Demanda Confiança durante a Tribulação**
+- Imagine o cenário, Jesus está chamando seus discípulo (não apenas os 12) para entrarem no barco.
+- O mestre da lei que queria estabilidade, deu as costas e voltou para casa.
+- O discípulo que queria resolver seus negócio terrenos e depois seguir a Cristo, também deu as costas e voltou para casa.
